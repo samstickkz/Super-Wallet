@@ -1,4 +1,4 @@
-# newwallet2 Preview
+# Super Wallet Preview
 https://user-images.githubusercontent.com/39702515/209447253-43d551eb-301e-43f1-a9cc-458c03a03798.MOV
 
 https://linktr.ee/samstickkz
